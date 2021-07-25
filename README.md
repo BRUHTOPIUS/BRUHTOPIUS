@@ -5,3 +5,5 @@
 I am currently...
 - Working on wargame sim
 - Helping manage the Repvblic discord server: [**-> Invite! <-**](https://discord.gg/XB75prN33Z)
+
+![](romanDoges.jpg)
