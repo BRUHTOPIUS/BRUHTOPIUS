@@ -1,4 +1,4 @@
-# 👋🏻 Greetings, I am **IMP•C•BRVH•REP•TEL•MC•BGENZ•M•M•FELIX**, four-time consvl, twice dictator, censor 💪🏻
+# 👋🏻 Greetings, I am **IMP•C•BRVH•REP•TEL•MC•BGENZ•M•M•FELIX**, four-time consvl, twice dictator, censor 💪🏻 😎 💯
 
 I have a bunch of interesting interests like programming, art & design, rhetoric, hating the antichrist, politics, writing, memes, etc. Hit me up on discord at `BRVH • FELIX#1353` if you want to hang out!
 
