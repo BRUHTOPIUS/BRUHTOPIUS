@@ -6,6 +6,8 @@ Interests include programming, art & design, rhetoric, hating the antichrist, po
 
  ⚔️ Working on cool little wargame sim that you can find in my repositories
  
+ 🤖 Perfecting BrvhBot
+ 
  💬 Helping manage the Repvblic discord server
  
  💸 Hard working on my *GRINDSET*, aiming for that *ten-figure* portfolio valuation, sleeping 2 times a day for two hours, *no friends - only competitors*, 8 hours of planking every morning, shower: never (smell confuses enemies), **@TRILLIONAIRE @GRINDSET @SIGMA**
